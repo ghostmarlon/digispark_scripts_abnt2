@@ -1,2 +1,22 @@
-# digispark_scripts_abnt2
-Scripts para digispark attiny85 - ABNT2 usando a tradução do @jcldf .. por enquanto nao tem uma descrição longa kskkk
+Chupa a cabeça da minha pica
+Vem me dar uma mamada
+Vem me pagar um babão
+Se morder vai levar um socão
+
+Chupa meu pau
+Lambe meu ovo
+E a virilha
+Vai com calma minha filha
+Porque eu não quero gozar
+
+Chupa meu pau
+Lambe meu ovo
+E a virilha
+Vai com calma minha filha
+Porque eu não quero gozar
+
+Chupa meu pau
+Ovo
+Virilha
+Vai com calma minha filha
+Porque eu não quero gozar
